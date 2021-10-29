@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @reediredale
+- 👀 I’m interested in data and decision-making for businesses.
+- 🌱 I’m currently ALWAYS learning everything data related
+- 📫 How to reach me over at reediredale.com
